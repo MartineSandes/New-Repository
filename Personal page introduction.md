@@ -1,0 +1,1 @@
+Hello there! It's a pleasure to meet you. My name is Martine Sandes Martinez and I came into this world on July 20th, 2007. My mother's name is Erika Martinez and I was named after my father, which can be a bit confusing at times. However, I've learned to embrace my unique name and wouldn't change it for anything.
